@@ -1,0 +1,3 @@
+Chocolate Cake 
+ 
+ First we take some all purpose flour and mix it with cocoa powder, pinch of salt, baking powder, baking soda and some powdered sugar. Then we will have to take a different bowl and add some melted butter, eggs (optional) and milk. Mix everything slowly so that lumps are not formed. Put the mixture in a baking tray and put it in the oven at 180 degrees for 20-25 minutes. Serve it and enjoy!
